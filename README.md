@@ -1,1 +1,1 @@
-# [java script certificate](javadjavanganji.pdf)
+# [java script certificate](javad javanganji.pdf)
